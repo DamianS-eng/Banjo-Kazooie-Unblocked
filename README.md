@@ -1,4 +1,4 @@
-# You can now play Banjo-Kazooie [UNBLOCKED!](https://superteamxp.github.io/Banjo-Kazooie/)
+# You can now play Banjo-Kazooie [UNBLOCKED!](https://superteamxp.github.io/Banjo-Kazooie-Unblocked/)
 
 This unblocked version is property of SuperTeamXP
 
